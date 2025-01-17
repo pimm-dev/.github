@@ -10,7 +10,7 @@
 우리는 🌾 [논과](https://arcsystemworks.asia/sakuna/kr/) [밭을 꾸리고](https://www.stardewvalley.net/) [생활의 터전을](https://www.nintendo.co.kr/switch/acbaa/index.html) 일구었습니다.    
 우리는 🪗 [다양한](https://pjsekai.sega.jp/) [악곡의](https://rhythmdr.com/) [연주자](https://www.djmaxrespect.com/)가 되었고,  
 우리는 친구들과 ❓ [얼굴도 본 적 없는](https://overwatch.blizzard.com/) [5인의](https://www.leagueoflegends.com/) [상대를](https://www.pubg.com/) 쓰러뜨려냈으며,  
-우리는 💡 [베일에 싸인 수수께끼와](https://www.layton.jp/) [음모를](https://store.steampowered.com/app/3072450/FAKEBOOK/) 파헤쳤습니다.  
+우리는 🪦 [반복된](https://store.steampowered.com/app/250900/The_Binding_of_Isaac_Rebirth/) [실수와](https://store.steampowered.com/app/646570/Slay_the_Spire/) [잘못을](https://store.steampowered.com/app/1147560/Skul_The_Hero_Slayer/) [바로잡아](https://www.riskofrain.com/) [거대한](https://store.steampowered.com/app/1562700/_/) [시련을](https://www.eldenring.jp/) [극복](https://www.darkestdungeon.com/)했습니다.  
 
 ### 🌏 더 넓은 세상으로
 지금까지 작은 창으로 넓은 세계를 바라봤습니다.  
