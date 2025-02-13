@@ -1,6 +1,7 @@
 # Play, Interact, Make, Maintain.
 
-![](https://raw.githubusercontent.com/pimm-dev/.github/refs/heads/master/static/marathon-cover.png)
+![](https://raw.githubusercontent.com/pimm-dev/.github/refs/heads/master/static/marathon-cover.png)  
+_&copy; 정희수_
 
 ### 🎮 _플레이하고, 교감하고, 만들고, 이어나가다._
 
