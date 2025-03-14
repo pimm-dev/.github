@@ -1,5 +1,7 @@
 # Play, Interact, Make, Maintain.
 
+<a href="https://pimm-dev.itch.io" target="_blank"><img src="https://static.itch.io/images/badge.svg" height="40"/></a>
+
 ![](https://raw.githubusercontent.com/pimm-dev/.github/refs/heads/master/static/marathon-cover.png)  
 _&copy; 정희수_
 
